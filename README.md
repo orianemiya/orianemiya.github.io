@@ -1,3 +1,0 @@
-# orianemiya.github.io
-
-hello
